@@ -1,4 +1,4 @@
-Hello my name is Will, im 15 years old with a vivid imagination!
+Hello my name is Will, im 16 years old with a vivid imagination!
 I like to make games in my free time and love to play minecraft!
 My favorite show is Dragon Ball and my favorite color is blue!
 
